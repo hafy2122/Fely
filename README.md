@@ -1,2 +1,0 @@
-# Fely
-Aku Sayang Kamu
